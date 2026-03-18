@@ -1,1 +1,1 @@
-# Faveroooo.ghithub.io
+# Faveroooo.github.io
